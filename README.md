@@ -1,2 +1,1 @@
-# san-sebastian-cheesecake
-San Sebastian Cheesecake
+# San Sebastian Cheesecake
